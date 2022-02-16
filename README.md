@@ -1,4 +1,4 @@
-# 10-Serial-Killer-Nunca-Descobertos
+# 10-Serial-Killers-Nunca-Descobertos
 Canal Colecionador de Ossos
 
 # Fontes e Referências da matéria
